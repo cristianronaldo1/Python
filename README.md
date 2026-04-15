@@ -9,5 +9,5 @@ Recuerda que las personas que desarrollan grandes proyectos y maravillosos, come
 
 
 > [!TIP]
-> Nunca pares de aprender!
-> La obsesión vence al talento!👨‍💻🏋️‍♂️
+> **¡Nunca pares de aprender!**
+> La obsesión vence al talento! 👨‍💻🏋️‍♂️
